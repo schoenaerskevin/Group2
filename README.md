@@ -17,9 +17,9 @@ on entend des bruits au loin...
 Des centaines de guerriers se rapprochent alors
 
 
-*L'un d'entre eux, qui était resté derriere, se voyait découvrir les détails d'une _autre réalité_ dans les reflets de son bouclier.
+*L'un d'entre eux, qui était resté derriere, se voyait découvrir les détails d'une __autre réalité__ dans les reflets de son bouclier.*
 
-_Etait-il dans une simulation ?_ Cette guerre était-elle bien _réelle_ ?*
+*__Etait-il dans une simulation ?__ Cette guerre était-elle bien __réelle__ ?*
 
 
 
