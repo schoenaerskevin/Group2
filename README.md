@@ -21,6 +21,8 @@ Des centaines de guerriers se rapprochent alors
 
 *__Etait-il dans une simulation ?__ Cette guerre était-elle bien __réelle__ ?*
 
+*Obsédé par cette vision, il restait là, immobile, plongé dans le reflet du bouclier.*
+
 
 
 
