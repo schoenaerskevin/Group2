@@ -23,6 +23,12 @@ Des centaines de guerriers se rapprochent alors
 
 *Obsédé par cette vision, il restait là, immobile, plongé dans le reflet du bouclier.*
 
+_Mes frères tombaient l'un après l'autre devant mon regard_
+
+**Sous le poids des armes que possédaient tous ces barbares**
+
+_Des **lances**, des **haches** et des **épées** dans le jardin d'Éden_
+
 
 
 
