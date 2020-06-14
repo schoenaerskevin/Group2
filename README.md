@@ -27,7 +27,7 @@ _Mes frères tombaient l'un après l'autre devant mon regard_
 
 **Sous le poids des armes que possédaient tous ces barbares**
 
-_Des **lances**, des **haches** et des **épées** dans le jardin d'Éden_
+_Des **lances**, des **haches** et des **épées** dans le jardin d'Éden._
 
 
 
